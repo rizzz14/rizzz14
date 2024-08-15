@@ -2,4 +2,3 @@
 - 👀 I’m interested in intership or training opprounity
 - 🌱 I’m currently learning in b.tech third year IT
 - 📫 How to reach me gmail : aangishah1425@gmail.com
-- 
