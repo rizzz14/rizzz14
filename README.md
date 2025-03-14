@@ -1,4 +1,5 @@
-- 👋 Hi, I’m @rizzz14
+- 👋 Hi, I’m @ Aangi Shah
 - 👀 I’m interested in intership or training opprounity
-- 🌱 I’m currently learning in b.tech third year IT
+- 🌱 I’m currently learning in B.Tech Third Year IT
 - 📫 How to reach me gmail : aangishah1425@gmail.com
+- 📧 My LinkedIn Profile : https://www.linkedin.com/in/aangishah969
